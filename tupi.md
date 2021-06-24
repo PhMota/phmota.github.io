@@ -59,43 +59,147 @@ abacatujaba ─ vard. peixe-galo
 abacaxi ─ abacaxi
 
 ### page 20
-####updating
 
 abaé - outrem
-abaeté1 - homem honrado, de valor
-abaeté2 - id. abaité
-abaíba 1 - difícil, trabalhoso, íngreme; confuso, misturado
-abaíba~ - namorado, futuro esposo
+
+abaeté¹ - homem honrado, de valor
+
+abaeté² - _id. abaité_
+
+abaíba¹ - difícil, trabalhoso, íngreme; confuso, misturado
+
+abaíba² - namorado, futuro esposo
+
 abaité - terrível, medonho
+
 abangaba - descoroçoado, acovardado
+
 abangaíba - homem desprezível
-abaré - t padre
-abareguassu. - i" bispo
-·abati - milho ; roça de milho
--.ibatií - -;- arroz
-ãbatiy - vinho de milho
+
+abaré - † padre
+
+abareguassu - † bispo
+
+abati - milho ; roça de milho
+
+ibatií - † arroz
+
+abatiy - vinho de milho
+
 abé - também ; logo que ; ao mesmo tempo que
+
 abebó - grenha, cabeleira eriçada
-aberamei - ptc. parecer; como se
-abi - agulha
-abiã . .. , memetipó. . . - se ... , quanto mais
-abiju ( s) - penugem ; aspereza [ de pano, madeira, ets.]
+
+aberameĩ - _ptc._ parecer; como se
+
+abĩ - agulha
+
+abiã..., memetipó... - se ..., quanto mais
+
+abiju (s) - penugem ; aspereza [de pano, madeira, ets.]
+
 abiú - tr. catar a cabeça de
+
 aboó - tr. pelar a cabeça de; arrancar os cabelos a
-aboó ( s) - tr. depenar, pelar
-aby - tr. ,e rrar, não acertar em ; transgredir; ser diferente de
-abyaca (t) - bódum; cheiro de suor ou roupa suja; (xe}:
-feder a bódum, etc.
+
+aboó (s) - tr. depenar, pelar
+
+aby - tr. errar, não acertar em; transgredir; ser diferente de
+
+abyaca (t) - bódum; cheiro de suor ou roupa suja; (xe): feder a bódum, etc.
+
 abyara - diferente de
+
 abyareyma - parecido com, semelhante a
+
 abyquy - tr. apalpar, tocar
+
 abyquyaba - carda
+
 abyquyca - tr. pentear, cardar, escovar
-ac~ - apõe. de acó
-aca1 - chifre ; ponta.; esporão
-· aca2 - amargo
-acã (s) .- galho, ramo
-acaba -
- tr. gritar com; brigar com
-·acacaba - tr. repreender, censurar
+
+ac- ─ _apõc. de acó_
+
+aca¹ - chifre; ponta; esporão
+
+aca² ─ amargo
+
+acã (s) ─ galho, ramo
+
+acaba ─ tr. gritar com; brigar com
+
+acacaba ─ tr. repreender, censurar
+
+### page 21
+
+acái! ─ oh!, ai! _(dó, dor, medo, zombaria) (h.)_
+
+acajá¹ - madre
+
+acajá² - cajá
+
+acajacá .- vard. cedro
+
+acajacatinga .- m. q. acajucatinga
+
+acajatinga - vard. cedro _brasileiro
+
+acaju1 - caju ; ano
+
+acaju² ─ vard. mogno
+
+acajuy ─ vinho feito de caju
+
+acaju acajá .- castanha de caju
+
+acajucatinga - vard. cedro brasileiro
+
+acaju ti ─ castanha de caju
+
+acajuyba - cajueiro
+
+acamby (t) ─ vão entre as pernas; forquilha
+
+acanga - cabeça
+
+acangá ─ tr. quebrar a cabeça de
+
+acangaguá ─ clava, maça
+
+acangaoba ─ carapuça de penas; + chapéu
+
+acangapé - crâneo
+
+acangassojaba ─ _m. q. acangaoba_
+
+acangassy ─ dor de cabeça
+
+acangatara ─ cocar
+
+acangüera¹ ─ cabeça separada do corpo
+
+acangüera² ─ vard. gavião
+
+acan(gu)itara ─ cocar
+
+acangupaba - cabeceira ; + travesseiro, almofada
+
+acangussu - cabeçudo; desgrenhado
+
+acangüyra ─ imobilizado de desânimo
+
+acanundubora - febricitante
+
+acanunduca - febre ; febril
+
+acapé (t) ─ pedaço, chapa, posta, mancha [de cousa extensa, como mato, campo, chão, madeira, carne, couro ets.]; parede abdominal ; ventre, barriga
+
+acãpyra (s) ─ ponta [de árvore, galho]
+
+acará¹ ─ cará (planta tuberosa)
+
+acará² - peixe, fam. Ciclídeos: acarát ou cará
+
+### page 22
+### updating
 
