@@ -203,3 +203,81 @@ acará² - peixe, fam. Ciclídeos: acarát ou cará
 ### page 22
 ### updating
 
+- acaraãia - peixe-cão
+- acaramucu - peixe-porco ; gudinho
+acarapeassaba - vard. sargo fluvial
+acarapeba - vard. peixe
+acarapinim.a - vard. salema
+acarapitamba - vard. peixe
+acarapucu - vard. sa1ema
+acaratinga - vard. peixe
+acaraúna - vard. acará 2
+acaraxixã - grosso, áspero
+acari - id. guacari
+acarissoba - erva-capitão
+acauã - m. q. macucaguá
+acó1 - êsse, -a, -es, -as, isso ; aquele, -a, -es, -as, -ilo ( e.
+invis.)
+acó 2 ( t) - virilhas
+acoaba (t) - púbis feminrno
+ácó acó cuessé - antes de anteôntero
+acoãibae ( s) - macho
+acoaynha (t) - pênis; vd. acuãia
+ãcoca' - tr. fazer [sal]
+acoca 2 - tr. abraçar a cabeça de
+acó cuessé - anteôntem
+acuãia ( t) - pênis
+âcüãra (t) - f.ebr-e ; febril
+acuba (t) - quente ; calor; febril: febre
+.'.'"acubaíba (t) - morno, tibio
+acubora ( t) - caloroso ; animoso
+acué(i) (a) - esse, aquele, -a. -es, -as: isso, aquilo
+( e. invis.}
+acué(i)me - antigamente
+acuí - enxuto; sêco
+acuia - calvo
+acuraá - enseada, baía ; remanso ou poço do rio
+acurei - agitado : sacudido
+acuti - cotia
+VOCABULÁRIO TUPI-PORTUGUÊS
+ 23
+aé1
+ .-
+ mesmo, -a, -os, -as
+ãê2 .-
+ outro, diferente
+aé3 . - aquele, -a, -es, -as, -ilo
+aé4 .- senão, antes, mas
+aé 7;, .- e ••• ?
+aé6 ••• - e ...
+aéboe - justamente
+aeibé - logo então
+aembé1 (s) - áspero
+aembé 2 (s) - tr. torrar [milho ets.]
+aembeé ( s) - afiado: tr. afiar
+aé ré - depois disso
+aéreme - então
+aeremebé - enquanto i~so
+aeté - -fino, aprimorado
+aguá - inchaço com corrimento
+aguaá - altibaixos
+aguaí 1 - vard. fruto e árv.: cascaveleira
+aguaí2 - guiso, cascavel, colar feito com a casca do fruto
+de aguai1
+aguãia - tr. morder com as gengivas
+aguama .- id. saguama
+aguamiranga - bracelete de penas
+aguana - id. auana
+aguapé - golfão, nenúfar
+aguapeassoca - m. q. jassanã
+aguar! .- cachorro-do-mato
+aguaracaba - vard. formiga
+aguaraguassu - lobo
+aguaraquyynha - erva-moura
+aguarassaussá - vard. caranguejo
+aguaraussá - vard. caranguejo
+Aguassay .- n. de um espírito
+aguaxyma - malvaísco
+agüé ( s) - meio. metade: um pouco menos da metade
+agüeá - molar
+
